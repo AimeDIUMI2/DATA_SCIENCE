@@ -1,4 +1,8 @@
 # DATA\_SCIENCE
 
-fufrjfjfkfkf
+Aimé
+
+DIUMI
+
+DIKOLO
 
