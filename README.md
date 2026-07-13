@@ -1,4 +1,6 @@
 # DATA\_SCIENCE
 
-fufrjfjfkfkf
+MATH INFO
+INOHA
+
 
