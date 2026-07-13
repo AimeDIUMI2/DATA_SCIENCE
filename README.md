@@ -1,8 +1,6 @@
 # DATA\_SCIENCE
 
-Aimé
-
-DIUMI
-
+Aimé 
+DIUMI 
 DIKOLO
 
